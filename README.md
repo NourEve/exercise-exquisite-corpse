@@ -9,3 +9,7 @@ En effet, bien qu'étant globalement mignon, **Thémis** était affublé d'un *b
 La solution a la quelle **Themis** pensa n'etait pas joyeuse du tout... Mais non, il s'y refusa.
 Il avait des parents aimant et pour eux il ferait tout !
 Il decida donc d'aller se confronter aux autres chats, ```aujourd'hui je serai un grand chat``` se dit il
+
+Petit détails, les autres chats sont élevés dans la rues, donc forcement ils sont agressif contrainement à **Thémis** qui est doméstique.
+Le petit chat se promena dans les rues du village de *Matouchat* quand tout d'un coups, un groupe de chat tomba sur lui ! Heureusement avec ca sublime langue il a su les amadouers et fait partir de leur *bande*. 
+Thémis devient avec le temps un **grand chat de rue** comme étant son objéctif de base. Ses parents sont finalement fier de lui, enfin de ce qu'il était devenu. 
