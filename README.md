@@ -6,3 +6,6 @@ Mais, en dehors de la maison, ce n'était pas la même histoire. **Thémis** ét
 
 En effet, bien qu'étant globalement mignon, **Thémis** était affublé d'un *bec*, un bec tout plat de canard. Non seulement ce n'était pas très *beau*, mais ce n'était pas du tout *pratique* pour laper le lait, attraper les souris élevées par ses parents, ou tout simplement pour miauler. Bien entendu, ses parents l'aimaient tel qu'il était. Mais le reste du village, à commencer par ses camarades d'école, se moquaient de sa différence. Après avoir subi ce rejet durant des années, **Thémis** décida \_qu'il voulait en finir avec cette situation\_.
 
+La solution a la quelle **Themis** pensa n'etait pas joyeuse du tout... Mais non, il s'y refusa.
+Il avait des parents aimant et pour eux il ferait tout !
+Il decida donc d'aller se confronter aux autres chats, ```aujourd'hui je serai un grand chat``` se dit il
